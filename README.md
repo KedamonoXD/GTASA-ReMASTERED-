@@ -1,4 +1,4 @@
-# GTASA-ReMASTERED-
+# GTA San Andreas Remastered INSANITY
 MODS
 
 CLEO + ModLoader + ASI Loader: https://www.mediafire.com/file/zns893e9pdrqcd8/CLEO_%252B_ModLoader_%252B_ASI_Loader_para_GTA_San_Andreas.rar/file
