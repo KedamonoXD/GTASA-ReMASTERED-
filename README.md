@@ -24,10 +24,9 @@ Car Wash: https://www.mixmods.com.br/2020/08/car-wash-v2-2-lava-rapido-funcional
 
 Carl Johnson Remastered (INSANITY CJ): https://www.mixmods.com.br/2018/06/carl-johnson-remastered-insanity-cj/
 
-GTASA-HD-Skins-Pack: http://www.mediafire.com/file/agawwfsavj3dqlq/GTASA-HD-Skins-Pack.rar/file
+Vados Peds Pack: https://www.mixmods.com.br/2020/09/vados-peds-pack/
 
 Personajes de escena remasterizados (personajes HD): https://www.mixmods.com.br/2020/02/cutscene-characters-remastered-personagens-em-hd/
-
 
 Proper Vehicles Retex: https://www.mixmods.com.br/2021/11/sa-sade-proper-vehicles-retex-v1-3-4-texturas-hd-para-veiculos/
 
